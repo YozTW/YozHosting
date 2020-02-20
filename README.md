@@ -4,5 +4,5 @@ YouTube: http://yt.yoztw.net/ <br>
 FaceBook: https://fb.me/yoztw.net/ <br>
 Instagram: https://www.instagram.com/yoztw/ <br>
 
-# Yoz Hosting — 佑子託管
+# Yoz Hosting — 佑子託管 (已停止服務)
 佑子託管官方網站
